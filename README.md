@@ -1,0 +1,2 @@
+# premium-ormolu-mount-001-ormolu-mounting-gilded-bronz
+Tired of overpaying for antique ormolu furniture or struggling to distinguish genuine gilded bronze from cheap brass replicas?  This hub solves the confusion and cost by providing a curated library of mounting patterns, gilding methods, and authentication guides, saving you hours of research and costly mistakes. It's the only digital resource that
